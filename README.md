@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ponker231
 - 👀 I’m interested i
-- 🌱 I’m currently learning .dfd
+- 🌱 I’m currently learning .dfdtr
 - 💞️ I’m looking to collaborate on .fdg
 - 📫 How to reach me 
 
