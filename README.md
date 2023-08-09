@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ponker231
 - 👀 I’m interested i
 - 🌱 I’m currently learning .dfdtr
-- 💞️ I’m looking to collaborate on .fdgpp
+- 💞️ I’m looking to collaborate on .fdgppa
 - 📫 How to reach me mm
 lSA
 <!---sa
